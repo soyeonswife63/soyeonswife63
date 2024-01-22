@@ -1,16 +1,19 @@
-### Hi there 👋
 
-<!--
-**soyeonswife63/soyeonswife63** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**pronouns:** she/her
 
-Here are some ideas to get you started:
+**i make shit no one will use😻😻**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<details>
+  <summary><h2>random stuff</h2></summary>
+  
+  - widevine is my arch enemy
+  
+  - i like old phones
+    
+  - happily married to (G)I-DLE, LE SSERAFIM, ITZY, aespa, NMIXX, BoA, IZ*ONE, IVE, Kep1er, NewJeans❤️‍🔥❤️‍🔥
+</details>
+
+[stream Wife by (G)I-DLE](https://open.spotify.com/track/6hWU8LrnjLyYHShDyNWFZj)
+[stream Fe3O4: BREAK by NMIXX](https://open.spotify.com/album/5CCxLQgcI7cVwmgFDlicbP)
+
+![sy](https://github.com/soyeonswife63/soyeonswife63/assets/157366808/22491ed7-1626-4348-8171-1b56283945b0)
