@@ -13,6 +13,8 @@
   - happily married to (G)I-DLE, LE SSERAFIM, aespa, NMIXX, BoA, IZ*ONE, Kep1er❤️‍🔥❤️‍🔥
 </details>
 
+BOYCOTT LOONA!!! stream [Loossemble](https://open.spotify.com/album/51TyZNm7E9EF1gSJGLGsxh)
+
 [stream 2 by (G)I-DLE](https://open.spotify.com/album/0mC9MXPddkzggVsOXh5gd3)
 
 [stream Fe3O4: BREAK by NMIXX](https://open.spotify.com/album/5CCxLQgcI7cVwmgFDlicbP)
