@@ -1,5 +1,5 @@
 
-**pronouns:** she/her
+**pronouns:** she/they
 
 **i make shit no one will use😻😻**
 
