@@ -10,13 +10,9 @@
   
   - i like old (midrange) phones
     
-  - happily married to (G)I-DLE, LE SSERAFIM, aespa, NMIXX, BoA, IZ*ONE, Kep1er❤️‍🔥❤️‍🔥
+  - i stan (G)I-DLE, LE SSERAFIM, aespa, NMIXX, BoA, IZ*ONE, Kep1er, IVE, KISS OF LIFE, tripleS, XG, TWICE, Red Velvet and more ggs❤️‍🔥
 </details>
 
-BOYCOTT LOONA!!! stream [Loossemble](https://open.spotify.com/album/51TyZNm7E9EF1gSJGLGsxh)
+i also do Minecraft shit at [@wavEye-Project](https://github.com/wavEye-Project) :33
 
-[stream 2 by (G)I-DLE](https://open.spotify.com/album/0mC9MXPddkzggVsOXh5gd3)
-
-[stream Fe3O4: BREAK by NMIXX](https://open.spotify.com/album/5CCxLQgcI7cVwmgFDlicbP)
-
-![sy](https://github.com/soyeonswife63/soyeonswife63/assets/157366808/22491ed7-1626-4348-8171-1b56283945b0)
+"hey hop in sweetie boy" -shuhua, klaxon, 2024
